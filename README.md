@@ -4,4 +4,5 @@
 
 
 <i>kill</i> <i>yourself</i> <b>!</b> 
+do NOT copy, inspo or tint my skins. being on safe server or anywhere doesn't give you a reason to do so.
 </p>
